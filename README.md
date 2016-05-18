@@ -1,1 +1,1 @@
-# choreff.github.io
+Magical Website of Magic
